@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Muhammad-989
-- 👀 I’m interested in new and old interesting gadgets
+- 👀 I’m interested in new and old gadgets
 - 🌱 I’m a fresh BSCS graduate
 - 📫 How to reach me via email; muhammadbinamin989@gmail.com
 - Looking for project ideas to strengthen my portfolio
